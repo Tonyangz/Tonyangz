@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tonyangz
+- 👀 I’m interested in Books and sports.
+- 🌱 I’m currently learning Life.
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I actually only join sports because I know to myself I don't have enough motivation and I know I won't get high academic scores.
